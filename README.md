@@ -30,4 +30,4 @@ Estou buscando evoluir na área de tecnologia, principalmente em desenvolvimento
 
 ## Contato
 
-LinkedIn:(https://www.linkedin.com/in/carlos-eduardo-de-lira-almeida-b63b75345/)
+LinkedIn: https://www.linkedin.com/in/carlos-eduardo-de-lira-almeida-b63b75345/
